@@ -1,4 +1,4 @@
-Proyecto: A RO ROs Dulces Sueños- es una empresa familias que hace 17 años cinfecciona articulos para bebès una amplia gama de articulos diseñados y confeccionados artesanalmente con el delicado cuidado que tu bebè se merece.
+Proyecto: A RO ROs Dulces Sueños- es una empresa familiar que hace 17 años cinfecciona articulos para bebès una amplia gama de articulos diseñados y confeccionados artesanalmente con el delicado cuidado que tu bebè se merece.
 Este sitio web permite realizar compras de artìculos para bebès. Articulos:
 catre para bebès
 Sabanas de varias medidas.
